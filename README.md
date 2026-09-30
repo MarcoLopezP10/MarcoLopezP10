@@ -23,7 +23,6 @@ I'm passionate about using technology to tackle complex problems — from buildi
 - 📚 **M.S. Business Analytics & Data Science** — IE Business School *(2025–2027)*
 - 🏀 Basketball team captain for **5+ years** — leadership, discipline, teamwork
 - 🌍 Trilingual: Spanish 🇪🇸 · English 🇬🇧 *(C2 Cambridge)* · French 🇫🇷 *(DELF B1)*
-- 🤝 Volunteer at **A LA PAR Foundation** — supporting individuals with intellectual disabilities
 
 ---
 
